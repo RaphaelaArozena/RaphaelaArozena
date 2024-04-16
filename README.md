@@ -2,7 +2,7 @@ Olá mundo, eu sou a Raphaela Arozena! 💗
 
 
 
-- 🔭 Hoje trabalho na FIAP
+- 🔭 Estagiando na FIAP
 - 📔 Atualmente cursando Sistemas de Informação
 - 📩 Email: arozenarapha@gmail.com
 
