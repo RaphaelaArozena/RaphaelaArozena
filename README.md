@@ -1,4 +1,4 @@
-Olá mundo, eu sou a Raphaela Arozena! 💗
+Sou a Raphaela Arozena! 💗
 
 
 
